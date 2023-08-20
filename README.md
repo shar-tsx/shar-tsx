@@ -1,5 +1,5 @@
-### Hi there 👋
-my left ball exploded
+### i am the one and only SHART (accidental T)
+### i litterally have NO PURPOSE
 
 <!--
 **shar-txt/shar-txt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
